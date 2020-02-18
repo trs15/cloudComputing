@@ -5,4 +5,4 @@
     2. What is our group name
     3. What are the names of our group members
   
-2. Call Watson directly and ask any of the previous questions
+2. Call Watson directly (+14805686097) and ask any of the previous questions
